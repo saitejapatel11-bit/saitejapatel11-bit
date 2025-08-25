@@ -42,7 +42,7 @@ Previously worked at **Amazon** and as a **Graduate Research Assistant at Southe
 ---
 
 ## 📫 Connect With Me
-- LinkedIn: [linkedin.com/in/saitejapatel11  
+- LinkedIn: linkedin.com/in/saitejapatel11  
 - Email:saitejapatel11@gmail.com
 - Resume: [Download Here](#)  
 
